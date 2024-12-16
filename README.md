@@ -1,0 +1,1 @@
+# Write-a-1500-2000-word-blog-on-the-topic-Residential-vs.-Commercial-Real-Estate.
